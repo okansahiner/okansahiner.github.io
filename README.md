@@ -1,4 +1,1 @@
 # okansahiner.github.io
-
-
-
